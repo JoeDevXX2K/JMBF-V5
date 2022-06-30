@@ -1,3 +1,5 @@
+[![430238519b876fed30a478781f727037.gif](https://i.postimg.cc/CxSHjr8R/430238519b876fed30a478781f727037.gif)](https://postimg.cc/GHgyRQqR)
+
 Jika kamu ingin menggunakan tools JMBF V5, kamu perlu daftar terlebih dahulu di
 
 # DAFTAR KE WHATSAPP
