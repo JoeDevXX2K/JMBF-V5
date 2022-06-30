@@ -31,3 +31,9 @@ Terlebih dahulu kamu download Termux di PlayStore atau https://f-droid.org/en/pa
      2 Bulan  : Rp 100.000
      3 Bulan  : Rp 120.000
      4 Permanen + Full Source : 350.000
+
+<h3 align="left">Connect with me:</h3>
+<p align="left">
+<a href="https://wa.me/+6283164279551" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/whatsapp.svg" alt="xx72.xvv2050" height="30" width="40" /></a>
+<a href="https://www.facebook.com/JOE.XXX2050" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/facebook.svg" alt="joedevv2k_" height="30" width="40" /></a>
+</p>
